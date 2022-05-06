@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Хуан и Франциско
+- 👋 Hi, I’m huan e francisco
 - 👀 I’m interested in fazer jogos
 - 🌱 I’m currently learning fazer games
 - 💞️ I’m looking to collaborate on nada
